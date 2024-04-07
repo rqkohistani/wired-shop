@@ -34,3 +34,7 @@
 ### Step 6
 
 - Let cool completely before using. Store syrup in an airtight container for up to two weeks.
+
+### Step 7
+
+- Add to your favorite coffee drink and enjoy!
