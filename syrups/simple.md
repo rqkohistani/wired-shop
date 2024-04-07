@@ -13,11 +13,11 @@
 
 - Combine sugar and water in a small saucepan over medium-high heat.
 
-### Step 2
+### Step two
 
 - Bring the mixture to a boil. Reduce heat to medium and simmer until thickened,  about 10 minutes.
 
-### Step 3
+### Step three
 
 - Remove from heat and let cool completely.
 
