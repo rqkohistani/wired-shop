@@ -31,3 +31,7 @@
 ### Step 5
 
 - Top with caramel sauce.
+
+### Step 6
+
+- Stir and enjoy!
